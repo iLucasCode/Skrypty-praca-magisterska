@@ -1,0 +1,1 @@
+# Skrypty-praca-magisterska
